@@ -1,3 +1,5 @@
+DISPONIBLE SUR : https://lolosk.github.io/portfolio-genay-lois/cv.html
+
 À PROPOS :
 
 Je suis actuellement étudiant en première année de Bachelor Universitaire de Technologie en Réseaux et Télécommunications à l'IUT Nancy Brabois. Passionné par les technologies émergentes, j'ai développé des intérêts variés, notamment dans l'artisanat et l'innovation. Doté d'un tempérament à la fois calme et productif, je m'investis pleinement dans mes activités personnelles et professionnelles.
